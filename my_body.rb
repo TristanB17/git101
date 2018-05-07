@@ -1,4 +1,4 @@
-MC, you're the place to be
+You're the place to be
 Oh yeah, oh yeah, oh yeah, oh yeah, oh yeah
 Oh yeah, oh yeah, oh yeah, oh yeah
 I know that you've been waitin' for it
