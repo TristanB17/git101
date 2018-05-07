@@ -10,27 +10,7 @@ Would find me eventually
 I had a vision of love
 And it was all that you've given to me
 
-Prayed through the nights
-Felt so alone
-Suffered from alienation
-Carried the weight on my own
-Had to be strong
-So I believed
-And now I know I've succeded
-In finding the place I conceived
-
-I had a vision of love
-And it was all that you've given to me
-I had a vision of love
-And it was all that you've given me
-
-I've realized a dream
-And I visualized
-The love that came to be
-Feel so alive
-I'm so thankful that I've received
-The answer that heaven
-Has sent down to me
+n 1990, he produced his first act, the female hip hop trio Silk Tymes Leather.[1][9] He later formed the teen duo Kris Kross (Chris Kelly and Chris Smith) after meeting the boys at a local mall in 1991. The group's first album, Totally Krossed Out, was released in 1992 and went multi-platinum due to their singles "Jump" and "Warm It Up". He established his own record label called So So Def Recordings in 1993. Shortly after, he discovered female R&B group Xscape at a festival in Atlanta and signed them to the label. Their first album, Hummin' Comin' at 'Cha, went platinum. During the same year, on Yo! MTV Raps he met Da Brat through Kris Kross, signed her to his label So So Def Recordings, and released her debut Funkdafied (1994) which went platinum. So So Def Recordings entered into a distribution partnership with Columbia Records in 1993. In 1995, he collaborated with Mariah Carey for the first time on the number one hit single "Always Be My Baby." He contributed to Lil' Kim's 1996 album, Hard Core on the track "Not Tonight".
 
 You treated me kind
 Sweet destiny
